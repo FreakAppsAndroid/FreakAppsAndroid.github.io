@@ -1,4 +1,5 @@
 ## Welcome to the FreakAndroid !x!
+UPDATE K1 9:05
 The Freak Ventures : Parent/Umbrella Holdings firm. LLC.
 
 # FreakApps for Google Play and Amazon Appstore
